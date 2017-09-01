@@ -2,4 +2,4 @@
 
 > I think that joke is not funny, I suggest you remove that fucking disgrace!
 
-![meme](https://user-images.githubusercontent.com/1309035/29967158-74debca6-8f3f-11e7-94ba-9cc2ee9a1f1a.png)
+![meme](https://user-images.githubusercontent.com/1309035/29969105-daeb88cc-8f48-11e7-901c-a6a8d5b4acc1.png)
